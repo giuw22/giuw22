@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, i am giu!
 GIULIANA.
 giuliana.furtado@escola.pr.gov.br
 CEP
