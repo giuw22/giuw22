@@ -2,7 +2,8 @@
 GIULIANA.
 giuliana.furtado@escola.pr.gov.br
 CEP
-
+15 years
+gemeos
 <!--
 **giuw22/giuw22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
